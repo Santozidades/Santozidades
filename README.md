@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Santozidades
+- 👀 I’m interested in programing
+- 🌱 I’m currently learning English and physic
